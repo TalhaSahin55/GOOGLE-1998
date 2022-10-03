@@ -1,0 +1,1 @@
+https://patika.dev eğitimlerine devam! HTML tekrarı niteliğindeki bu ödevde Google 1998 verisonunu yaptım.
